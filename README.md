@@ -12,7 +12,7 @@ Here are some ideas to get you started:
 - 💬 Ask me about my journey as a software engineer and how I am trying transition into a opensource contributor and make a big impact
 - 📫 How to reach me: [Linkedin profile](https://www.linkedin.com/in/saurabhchatterjee23/)
 - 😄 Pronouns: (He/him)
-- ⚡ Fun fact: I have many vaied interests in topics like
+- ⚡ Fun fact: I have many varied interests in topics like
   -  Sustainable architecture
   -  Concious living
   -  Climate change reversal
@@ -20,7 +20,7 @@ Here are some ideas to get you started:
   -  Landscape photography
   -  Veganism and its real impact on climate change
   -  Cooking to demostrate that Indian food is inherently vegan and very tasty
-  -  Health and fitness - Long distance cyclist and walker
-  -  Phylantropy - Help others without expecting anything in return, no strings attached
-  -  Finantial freedom
-  -  Spirituality - Hinduism
+  -  Health and fitness - swimmer, Long distance cyclist and walker
+  -  Phylantropist - help others without expecting anything in return, no strings attached
+  -  Spiritual
+  -  Reader and learner
